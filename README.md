@@ -1,4 +1,5 @@
-## Resume
+
+![download](https://github.com/user-attachments/assets/52989ff1-5ae1-4147-bc3f-d977cc0cc312)
 
 ## Engineering Experience
 
