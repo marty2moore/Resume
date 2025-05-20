@@ -1,7 +1,4 @@
 
-<img src="https://github.com/user-attachments/assets/9a49168f-215e-4af5-894e-f4ed62b8a773/1716404712460" width="200" />
-
-
 ## Engineering Experience
 
 ### **Mechanical Design Engineer**  
