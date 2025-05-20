@@ -1,4 +1,3 @@
-# Martin Moore
 
 ## Engineering Experience
 
