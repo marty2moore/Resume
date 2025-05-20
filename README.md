@@ -1,7 +1,5 @@
 
-![OSU-Engineering-K-Vert-RGBHEX](https://github.com/user-attachments/assets/66a06a7d-526e-468e-9cb5-40c41de4d404)
-
-![bertec](https://github.com/user-attachments/assets/f064caae-6bd0-47b0-bfee-90d05b4bcc9a)
+![1716404712460](https://github.com/user-attachments/assets/9a49168f-215e-4af5-894e-f4ed62b8a773)
 
 ## Engineering Experience
 
